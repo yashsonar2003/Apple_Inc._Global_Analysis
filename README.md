@@ -1,0 +1,1 @@
+# Apple_Inc._Global_Analysis
